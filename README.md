@@ -6,4 +6,4 @@
 
 ## ****ФОТО**** ##
 
-https://vet-centre.by/wp-content/uploads/2016/11/kot-eti-udivitelnye-kotiki.jpg
+https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQtan3NDiW4p8P2sw5qzLVSnkJMCGevkOH6SQ&usqp=CAU
