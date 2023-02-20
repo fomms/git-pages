@@ -6,4 +6,4 @@
 
 ## ****ФОТО**** ##
 
-https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQtan3NDiW4p8P2sw5qzLVSnkJMCGevkOH6SQ&usqp=CAU
+https://www.newshub.co.nz/home/lifestyle/2019/08/the-top-five-cat-memes-of-all-time-rated/_jcr_content/par/video/image.dynimg.full.q75.jpg
